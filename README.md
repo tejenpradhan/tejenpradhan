@@ -11,7 +11,6 @@
 
 - 📄 Resume []
 
-- ⚡ Fun fact **I am Funny, Energetic and Passionate thinker**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
